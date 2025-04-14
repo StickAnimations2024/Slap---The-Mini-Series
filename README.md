@@ -1,1 +1,1 @@
-# Slap---The-Mini-Series
+# Slap - The Mini Series
